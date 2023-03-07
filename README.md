@@ -25,4 +25,9 @@ Sugestão: Como sugestão o Youtube deixar este dado como obrigatório no moment
 
 Link Youtube: https://www.youtube.com/@ZachChoi
 
-5-) Para este estudo troxemos também a evolução no volume de dados criados em 2022 comparando com o ano anterior um total de 21,01%.
+5-) Para este estudo troxemos também a evolução no volume de dados criados em 10 anos foi de 21,01%
+
+
+**O que é ASMR?**
+
+A sigla ASMR é hoje um dos temas mais recorrentes do YouTube. Aqueles vídeos em que pessoas falam com o espectador de modo pausado e sussurrando, fazendo sons diversos ou interpretando papéis possuem um propósito, fazer quem está do outro lado da tela relaxar e quem sabe, até cair no sono.
